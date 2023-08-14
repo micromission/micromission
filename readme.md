@@ -1,2 +1,2 @@
-# Md. Ashrafu Alam (micromission):
+# Md. Ashrafu Alam
 ----
